@@ -6,9 +6,8 @@ Gnudi
 
 - 12 ounces (1½ cups)
 - ½ cup all-purpose flour
-- 1 ounce
-- grated (1⁄2 cup), plus extra for garnishing
-- 1 tablespoon
+- 1 ounce grated (1⁄2 cup), plus extra for garnishing
+- 1 tablespoon panko bread crumbs
 - ¾ teaspoon table salt, plus salt for cooking gnudi
 - ½ teaspoon pepper
 - ¼ teaspoon grated lemon zest
@@ -17,10 +16,10 @@ Gnudi
 
 Gnudi Sauce
 
-- 4 tablespoons
+- 4 tablespoons unsalted butter
 - 3 garlic cloves, sliced thin
 - 12 ounces cherry or grape tomatoes, halved
-- 2 teaspoons
+- 2 teaspoons cider vinegar
 - ¼ teaspoon table salt
 - ¼ teaspoon pepper
 - 2 tablespoons shredded fresh basil
